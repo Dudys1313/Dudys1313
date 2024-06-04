@@ -8,6 +8,6 @@
 
 eduardabarobosagarcia4@gmail.com
 
-@Duarda_1305
+@Doarda_1305
 
 ![](https://media1.tenor.com/m/CiJuhjUFaeIAAAAC/gojo-satoru-jujutsu-kaisen.gif)
